@@ -8,5 +8,6 @@ I was a frequent runner for last 4 month with out any break .when i always go fo
 I gently went in my knees and pushed her to lay in the bush and slowly push her legs to both side.
 ![images (13)](https://user-images.githubusercontent.com/107746594/174432206-ac40feb0-3c85-47a1-98ff-f4fef8de0cac.jpeg)
 gntly pulled her nighty to both side and removed her panties ,it's smells good and rubbed her white pussy ,she hold my head and moved towards her pussy . I slowly licked her pussy like a ice cream  from bottom to top  she was at her orgasm .Then i put my cock inside her hole by rubbing it in her pussy she was at heaven .i pushed my cock directly in to her hole and she made strange sound.I pushed it hard and in a higher pace  she was licking me and pleasing wuth me to incease pace .she was" come on fast fast ohhh comming" she had come with a fresh warm juicy liquid and my cock sucked it like an energy drink and started push harder  in to her pussy she was vibrating andscreaming i push her mouth shut and at the end i  pulled my cock out and pushed my cock into her mouth and cum in her mouth she drick it and made my cock clean by licking it.After that we hugged each other and kissed for some time and dressed up and she went to shop and i went for running.
+
 https://user-images.githubusercontent.com/107746594/174433030-09965a84-ebf1-4950-b27a-d552b0510b65.mp4
 
